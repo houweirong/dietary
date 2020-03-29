@@ -9,7 +9,11 @@ https://weibo.com/tv/v/IypDNpi0H?fid=1034:4482016851197975 蛋挞奶香吃法，
 
 https://weibo.com/tv/v/IuK2c1ymA?fid=1034:4473231520759825 草莓奶冻
 
+https://weibo.com/tv/v/IwNqD1QWG?fid=1034:4477761348108325 旺仔牛奶冻
+
 二、菜
+
+https://weibo.com/tv/v/IAzNAdSUu?fid=1034:4487169633615886 辣白菜酸汤肥牛
 
 https://weibo.com/tv/v/Iwl5VjzcC?fid=1034:4477075713622059 酥的薯片鸡翅
 
