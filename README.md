@@ -35,4 +35,8 @@ https://weibo.com/tv/v/IyHB3CdfH?fid=1034:4482694315442186 鸡胸肉别再水煮
 
 https://weibo.com/tv/v/IyoJKtbxN?fid=1034:4481981799661604 咖喱饭
 
+https://github.com/houweirong/dietary/blob/master/README.md 咖喱鸡
+
+https://weibo.com/tv/v/IBAWT1D5i?fid=1034:4489593861636114 湖南辣椒炒肉
+
 https://weibo.com/tv/v/IBvwUzx1c?fid=1034:4489387195695120 便当
