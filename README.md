@@ -41,6 +41,8 @@ https://weibo.com/tv/v/IBAWT1D5i?fid=1034:4489593861636114 湖南辣椒炒肉
 
 https://weibo.com/tv/v/IB4nAipJq?fid=1034:4488345078923284 咸蛋黄做成的鸡翅
 
+https://weibo.com/tv/v/IDqlDE9H0?fid=1034:4493960601862162  虾仁和鸡蛋的完美组合
+
 https://weibo.com/tv/v/IBvwUzx1c?fid=1034:4489387195695120 便当
 
 面
